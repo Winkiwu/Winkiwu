@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Winkiwu
+- 👋 Hi, I’m @Winkiwu or Wink whichever you want to use 
 - 👀 I’m interested in ... Video game design.
 - 🌱 I’m currently learning ... Anything and everything, i know nothing so I'm starting from the basics. 
 - 💞️ I’m looking to collaborate on ... nothing for now. thanks for wondering though.
